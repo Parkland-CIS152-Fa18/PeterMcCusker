@@ -1,2 +1,2 @@
 # PeterMcCusker
-I like to play video game
+I like to play video games
